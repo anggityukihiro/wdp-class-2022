@@ -2,7 +2,7 @@
 
 ## About Me
 
-![enter image description here](https://drive.google.com/uc?export=download&id=1Vc2uHMYwU1vhjQLURx2EBouQzxwUWYTP)
+![enter image description here](https://teledriveapp.com/api/v1/files/b911d652-3b8f-4596-a9fa-e9d511ebb2c9?raw=1)
 
 Assalamu'alaikum wr wb.
 
